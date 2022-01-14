@@ -7,7 +7,7 @@ I plan to recreate this OS, as an actual OS or Browser with the original team me
 Discord Account: Wayqax#9007
 (Account info may be added)
 
-In order to join the Discord, I have to verify you fit for the team, as the server is for Developers only and not for the normal eye.
+In order to join the Discord, I have to verify you fit for the team, as the server is for Developers only and not for the normal eye. Exposing any of this information on the server will result in a direct exile from the server and team.
 Thank you for reading, 
 
 Wayqax
